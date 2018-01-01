@@ -6,17 +6,17 @@ title: Lessons From My Gap Year(s)
 # **Lessons from my gap year(s)**
 
 
-### - Know Yourself 
+### * Know Yourself 
 
   Now if the is only one thing only one lesson that I have learnt from this whole gap year(s) experience it will be “know yourself”. If I was to advice any soul on God’s green earth to take a gap year it will be for this one point and I’m not just saying that because I like that one Drake song know yourself (which by the way you should listen to it…. it’s pure fire) but during this whole gap year(s) experience I have learnt so much about myself, things that I may had never noticed about myself or things that I knew but may had forgotten about and I’m so glad that I they have come to my attention at this stage of my life and not later. I once heard this saying that “in life we spend a lot of time trying to get to know others which is really important but the one person we should get to know the most is ourselves.”
 
-### - The Devil Finds work for Ideal hands
+### * The Devil Finds work for Ideal hands
 
    I’m sure you might have heard this saying before and not really taught much about it (well me) but I have learnt that this is very true (so true). Normally when you are in school or have an obligation you usually have things to fill up your time with, whether its class or extracurricular activities or homework or even mingling with people in school. Usually all these activities drains your energy by the end of the day, not leaving you with much time to kill but then here comes my gap year(s) and the is no teacher given me any work to do basically I’m in charge of my whole day and it leaves this gap in my life (the irony). I suddenly have all this extra time in my day to basically kill and now here comes the devil who has been basically waiting for this opportunity his whole life who would have taught the devil doesn’t take a gap year.
 
 _**Which leads me to my next point**_
 
-### - Doing nothing is overrated
+### * Doing nothing is overrated
 
  For years upon years to be honest since I can remember I haven’t really liked school. I was always that guy, the one who stares at the clock or kept asking for the time just to know how many more hours in the day were needed for me to fake paying attention (can I just say I deserve an Oscar). It was always the scenario where I couldn’t wait to go home. To do what you may ask, I liked to think of it us the purpose of life. Which was basically not be in school because it was boring (so boring) .I’ll rather spend an entire day  watching news about how goats communicate with trees or even form faces out of objects than rather go to school (I feel like I need to add that I wasn’t a bad student, I just didn’t really like school) and after spending months away from that place not necessarily school but being productive in a sense It has finally dawned on me that doing nothing is over-rated (better late than never, I guess). That’s one of the reasons for this blog, to become a productive person (and can I just say it feels so ... so good). Who would have taught that in order for me to want to become a productive member of society I would have to reach the lowest stage of laziness.
 
